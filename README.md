@@ -2,7 +2,7 @@
 
 GREAT BANDCAMPS OF BANDS OF FRIENDS FROM MY LIFE
 
-I just dropped this dubstep under *GLITCH:
+I dropped this dubstep under *GLITCH:
 
 https://aaronmazie.bandcamp.com/album/am
 
