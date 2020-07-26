@@ -4,7 +4,7 @@ GREAT BANDCAMPS OF BANDS OF FRIENDS FROM MY LIFE
 
 I dropped this dubstep under *GLITCH:
 
-https://aaronmazie.bandcamp.com/album/am
+https://aaronmazie.bandcamp.com/album/missingno
 
 And these are 8 bands of friends from my life with great records out:
 
