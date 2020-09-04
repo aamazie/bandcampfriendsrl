@@ -2,7 +2,11 @@
 
 GREAT BANDCAMPS OF BANDS OF FRIENDS FROM MY LIFE
 
-I dropped this dubstep under *GLITCH:
+Me:
+
+https://aaronmazie.bandcamp.com/
+
+I dropped this dubstep under *GLITCH. Radio won't play it because bass too distorted. Glitch sounds from ai:
 
 https://aaronmazie.bandcamp.com/album/missingno
 
