@@ -8,7 +8,7 @@ https://aaronmazie.bandcamp.com/
 
 https://www.youtube.com/user/aamazie
 
-I dropped this dubstep under *GLITCH. Radio won't play it because bass too distorted. Glitch sounds from ai:
+I dropped this dubstep under *GLITCH. Glitch sounds from ai:
 
 https://aaronmazie.bandcamp.com/album/missingno
 
